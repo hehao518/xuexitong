@@ -4,7 +4,7 @@
 
 网上大部分的超星学习通刷课教程都是安装油猴插件，这种方法有一定的上手难度，对新手不友好，听说还容易被官方检测到。我这里给大家提供一个别人打包好的一键学习工具。
 
-下载链接：[点此下载](https://wwnd.lanzouw.com/b0065zhk7c) 提取码：8o5v
+下载链接：[点此下载](https://www.123865.com/s/aKnYTd-Imk13) 
 <img width="1435" height="785" alt="20200831144225" src="https://github.com/user-attachments/assets/29df5723-2a3b-4bd9-9acb-b4298763d32f" />
 
 #### 软件功能
